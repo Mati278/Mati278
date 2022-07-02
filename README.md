@@ -1,6 +1,6 @@
 i do hacks 4 roblox fnf games
 
-shitting on ur mother inc. rn
+i have yt : https://www.youtube.com/channel/UCCbXcflSKqx9jiCcZndTEqw
 
 The Hog Rider card is unlocked from the Spell Valley (Arena 5). He is a very fast building-targeting, melee troop with moderately high hitpoints and damage. He appears just like his Clash of Clans counterpart; a man with brown eyebrows, a beard, a mohawk, and a golden body piercing in his left ear who is riding a hog. A Hog Rider card costs 4 Elixir to deploy.
 
