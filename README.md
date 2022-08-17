@@ -4,7 +4,7 @@ i have yt : https://www.youtube.com/channel/UCCbXcflSKqx9jiCcZndTEqw
 
 the hog rider copypasta : https://pastebin.com/xkarka4B
 
-![lmao](https:https://raw.githubusercontent.com/stavratum/lua/cdf1a9d23c8dcc36e00748e957e5945403d87c57/fnb/modzy%20already%20pre%20patched%20all%20my%20methods%20wtf!!!!.png)
+![lmao](https://raw.githubusercontent.com/stavratum/lua/cdf1a9d23c8dcc36e00748e957e5945403d87c57/fnb/modzy%20already%20pre%20patched%20all%20my%20methods%20wtf!!!!.png)
 
 heck u ‼ ‼ 
 
