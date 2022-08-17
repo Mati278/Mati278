@@ -8,6 +8,13 @@ the hog rider copypasta : https://pastebin.com/xkarka4B
 
 heck u ‼ ‼ 
 
+
+
+
+
+
+
+
 Modern Sonic: Pokémon 1998
 
 Pokédex: A Pokémon that loves to run around and help other Pokémon when they are in trouble
