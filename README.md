@@ -4,40 +4,30 @@ i have yt : https://www.youtube.com/channel/UCCbXcflSKqx9jiCcZndTEqw
 
 the hog rider copypasta : https://pastebin.com/xkarka4B
 
-Modern Sonic: Pokémon 1998
+I'm gonna make an announcement.
 
-Pokédex: A Pokémon that loves to run around and help other Pokémon when they are in trouble
+Shadow The Hedgehog is a bitch-ass motherfucker, he pissed on my fucking wife. That's right, he took his hedgehog fuckin' quilly dick out and pissed on my fucking wife, and he said his dick was **t h i s     b i g**; and i said "that's disgusting" so i'm making a callout post on my Twitter.com:
 
-Type: Electric/Ground
+"Shadow The Hedgehog, you got a small dick, it's the size of this walnut except waaaaay smaller"
 
-Signature Moves: Homing Attack and Spin Dash
+And guess what
 
-Homing Attack: Has a 100% chance to hit if it hits the other Pokémon has a 40% chance to get hit with his quills causing more damage on top its base damage of 90
+![Here is what my dong looks like](https://github.com/Mati278/Mati278/blob/main/lmaaoooo.png)
 
-Spin Dash: Sonic revs up into a ball dealing damage on the next turn, During this move Sonic cannot be damaged by Physical moves like Tackle or Take Down its base damage is 120
+That's right baby, tall points, no quills, no pillows, look at that it looks like 2 balls and a bong
 
-Stats:
+He fucked my wife so guess what i'm gonna fuck the earth
 
-90 HP
+This is what u get
 
-110 ATTACK
+MY SUPER LAZER PISS!!
 
-80 DEF
+‫
+‫
+‫
+‫
+Except i'm not pissing on the earth, i'm gonna go higher, I'M PISSING ON THE MOON!!
 
-80 SP. ATTACK
+HOW DO U LIKE THAT OBAMA, I PISSED ON THE MOON YOU IDIOT!
 
-70 SP. DEF.
-
-Ability: Fastest Thing Alive
-
-When at least at half HP his speed increases by 50%
-
-Normal: Blue Fur with Tan Skin
-
-Shiny: Metallic Fur with Black eyes and Metal Red Pupils 
-
-Evolutionary Line: Classic -> Modern -> Super
-
-Classic Evolves into modern at level 31
-
-Modern Evolves into super when he has the Master Emerald Item
+You have 23 hours before the piss DRROOPPLLEETTSS hit the fucking earth now get out of my sight before i piss on you too.
