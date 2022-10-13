@@ -17,19 +17,27 @@ Homing Attack: Has a 100% chance to hit if it hits the other Pokémon has a 40% 
 Spin Dash: Sonic revs up into a ball dealing damage on the next turn, During this move Sonic cannot be damaged by Physical moves like Tackle or Take Down its base damage is 120
 
 Stats:
+
 90 HP
+
 110 ATTACK
+
 80 DEF
+
 80 SP. ATTACK
+
 70 SP. DEF.
 
 Ability: Fastest Thing Alive
+
 When at least at half HP his speed increases by 50%
 
 Normal: Blue Fur with Tan Skin
+
 Shiny: Metallic Fur with Black eyes and Metal Red Pupils 
 
 Evolutionary Line: Classic -> Modern -> Super
 
 Classic Evolves into modern at level 31
+
 Modern Evolves into super when he has the Master Emerald Item
