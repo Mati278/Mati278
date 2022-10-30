@@ -6,9 +6,9 @@ the hog rider copypasta : https://pastebin.com/xkarka4B
 
 I'm gonna make an announcement.
 
-Shadow The Hedgehog is a bitch-ass motherfucker, he pissed on my fucking wife. That's right, he took his hedgehog fuckin' quilly dick out and pissed on my fucking wife, and he said his dick was **t h i s     b i g**; and i said "that's disgusting" so i'm making a callout post on my Twitter.com:
+Robotic_Developer is a bitch-ass motherfucker, he pissed on my fucking wife. That's right, he took his hedgehog fuckin' quilly dick out and pissed on my fucking wife, and he said his dick was **t h i s     b i g**; and i said "that's disgusting" so i'm making a callout post on my Twitter.com:
 
-"Shadow The Hedgehog, you got a small dick, it's the size of this walnut except waaaaay smaller"
+"@roboticdevelopr, you got a small dick, it's the size of this walnut except waaaaay smaller"
 
 And guess what
 
