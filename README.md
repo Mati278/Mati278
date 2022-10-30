@@ -12,6 +12,7 @@ Shadow The Hedgehog is a bitch-ass motherfucker, he pissed on my fucking wife. T
 
 And guess what
 
+Here is what my dong looks like
 ![Here is what my dong looks like](https://github.com/Mati278/Mati278/blob/main/lmaaoooo.png)
 
 That's right baby, tall points, no quills, no pillows, look at that it looks like 2 balls and a bong
