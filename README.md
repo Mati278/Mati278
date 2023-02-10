@@ -1,4 +1,4 @@
-i do hacks 4 roblox fnf games and also know lua
+hi welcome to my page i guess
 
 i have yt : https://www.youtube.com/channel/UCCbXcflSKqx9jiCcZndTEqw
 
